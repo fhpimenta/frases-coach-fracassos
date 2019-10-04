@@ -1,3 +1,3 @@
-# Frases de Coach
+# Frases do Coach de Fracassos [@coachdefracassos](https://www.instagram.com/coachdefracassos/)
 
-Lista de frases (des)motivacionais que qualquer coach diria
+Lista de frases (des)motivacionais para fracassados como você
