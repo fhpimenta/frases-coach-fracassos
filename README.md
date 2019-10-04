@@ -6,14 +6,7 @@ Vai da Certo!
 "Nunca subestime sua incapacidade" @coachdefracassos
 
 "Nunca é tarde para desistir" @coachdefracassos
-<<<<<<< HEAD
 
 "Não tenha medo do fracasso, tenha certeza" @coachdefracassos
 
-=======
-É Grub!
-
-Vai dá Certo!
-
-"Nunca subestime sua incapacidade" @coachdefracassos
->>>>>>> 4bcb98daf182321db1712b008c31dbfb6f0107ba
+![alt text](https://i.pinimg.com/564x/98/fe/ab/98feabd7e53dda18ed28e1662c5028dc.jpg)
