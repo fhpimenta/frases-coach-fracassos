@@ -7,3 +7,6 @@ Vai da Certo!
 "Nunca subestime sua incapacidade" @coachdefracassos
 
 "Nunca é tarde para desistir" @coachdefracassos
+
+"Não tenha medo do fracasso, tenha certeza" @coachdefracassos
+
