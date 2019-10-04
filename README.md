@@ -1,12 +1,8 @@
-
-# frases-coach
-Lista de frases (des)motivacionais que qualquer coach diria
+# Frases do Coach de Fracassos [@coachdefracassos](https://www.instagram.com/coachdefracassos/)
+Lista de frases (des)motivacionais para fracassados como você
 
 É Grub!
 
-Vai da Certo!
+Vai dá Certo!
 
 "Nunca subestime sua incapacidade" @coachdefracassos
-# Frases do Coach de Fracassos [@coachdefracassos](https://www.instagram.com/coachdefracassos/)
-
-Lista de frases (des)motivacionais para fracassados como você
