@@ -15,6 +15,8 @@ Vai da Certo!
 
 "De mal a pior" @coachdefracassos
 
+"No tempo certo, tudo dará errado" @coachdefracassos
+
 ![alt text](https://i.pinimg.com/564x/98/fe/ab/98feabd7e53dda18ed28e1662c5028dc.jpg)
 
 ![alt text](https://i.pinimg.com/564x/d0/17/46/d01746734e1016bee0fe5c12db4d2a3c.jpg)
