@@ -13,6 +13,8 @@ Vai da Certo!
 
 "Sorria pra não chorar" @coachdefracassos
 
+"Quando disserem que não vai dar certo, acredite!" @coachdefracassos
+
 
 ![alt text](https://i.pinimg.com/564x/98/fe/ab/98feabd7e53dda18ed28e1662c5028dc.jpg)
 
