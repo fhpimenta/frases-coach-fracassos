@@ -19,6 +19,10 @@ Vai da Certo!
 
 "Não há saúde sem sáude mental" @coachdefracassos
 
+"Nunca fica mais difícil, é você que fica mais fraco" @coachdefracassos
+
+"Você ainda não chegou lá, mas olha o quanto você já se fudeu" @coachdefracassos
+
 
 ![alt text](https://i.pinimg.com/564x/98/fe/ab/98feabd7e53dda18ed28e1662c5028dc.jpg)
 
