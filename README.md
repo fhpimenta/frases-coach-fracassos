@@ -25,6 +25,8 @@ Vai da Certo!
 
 "O problema não é dia do azar, é a sua incompetência" @coachdefracassos
 
+"Tentar é o primeiro passo rumo ao fracasso" @coachdefracassos
+
 
 ![alt text](https://i.pinimg.com/564x/98/fe/ab/98feabd7e53dda18ed28e1662c5028dc.jpg)
 
