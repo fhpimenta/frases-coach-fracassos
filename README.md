@@ -1,4 +1,6 @@
+
 # Frases do Coach de Fracassos [@coachdefracassos](https://www.instagram.com/coachdefracassos/)
+
 Lista de frases (des)motivacionais para fracassados como você
 
 Vai da Certo!
@@ -27,6 +29,7 @@ Vai da Certo!
 
 "Tentar é o primeiro passo rumo ao fracasso" @coachdefracassos
 
+"É só uma fase ruim, logo vai piorar" @coachdefracassos
 
 ![alt text](https://i.pinimg.com/564x/98/fe/ab/98feabd7e53dda18ed28e1662c5028dc.jpg)
 
